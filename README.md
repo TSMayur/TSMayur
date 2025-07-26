@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **tsmayur1312@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/12iG1QJGtJgDcDlW5NnMqbLIZMtR1vxev/view?usp=sharing](https://drive.google.com/file/d/12iG1QJGtJgDcDlW5NnMqbLIZMtR1vxev/view?usp=sharing)
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
